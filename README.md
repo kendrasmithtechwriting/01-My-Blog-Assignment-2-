@@ -1,37 +1,8 @@
-## Welcome to GitHub Pages
 # Ken's Farm and Home
-You can use the [editor on GitHub](https://github.com/kendrasmithtechwriting/Ken-s-Farm-and-Home/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Ken's Farm and Home once located in Miami, Oklahoma was owned and operated by Ken and Marilyn Hunsperger for 35 years. It served as a staple for the local farming community. The stored sold a variety of items ranging from clothing, housewares, hardware, Stihl products and other lawn service items, and farming equipment. 
 
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/kendrasmithtechwriting/Ken-s-Farm-and-Home/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+## In the beginning
+Ken and Marilyn closed their gas station, "Ken's MFA" in Mansfield, Missouri in the beginning of 1976 before moving to Miami, Oklahoma. Ken's tire supplier, Raye Moore introduced Ken to Ray Swisher and Loui Feldman in 1976 who, after meeting, decided to open a farm store and began searching for locations. The men reviewed several locations including West Plains, Missouri and Paragould, Arkansas. After reviewing the demographics of several areas, the men decided Miami, Oklahoma. (??????). Ken closed his gas station in 1976 and stayed during the week in the "Thunderbird" motel leaving his wife, Marilyn, and two teenage daughters, Kathleen and Novaleen, in Mansfield. Ken travelled back to Mansfield every weekend to be with his family, while spending the week constructing the building for his future farm store. 
+ 
+The men contracted with Collins Construction to build the 30,000???? square feet metal building.The building was located on 2220 E Steve Owens Boulevard on a ???? acre land right next to the Turnpike Gate. After ??? months of construction, the battle began. Ken and partners began the search of electricians to wire the store. After searching, every company the men asked to wire the building said no due to threats from the electric company in town. The company, Booth and Booth Electric threatened other electricians by saying "they were going to take away their license" if they wired the building. The family of Ken and Marilyn believe this to be because Booth and Booth Electric did not want the farm and home store in town due to competetive fear. Ken and partners contracted electrician ????Cooley???? from Stillwater, Oklahoma. After Cooley wired the building, the business operated off of a temporary pole whilst waiting for the city inspector to improve the electric work done by Cooley. Shortly after the business opened in November of 1977, the City of Miami came and removed the pole the store had been generating electricity from because they did not approve the inspection. Local farmers, Leo Glenn, Ray Schumake, and several others got together and brought Ken a generator to help provide electricity. The men said they would do whatever it took to help keep Ken's Farm and Home in business and to keep the business in town. When the city pulled the electric pole during business hours, customers were left stranded in the dark. Employees gathered flash lights to help guide customers throughout the store and to help cashiers see to write paper tickets. The business ran off a generator for ??? time. Every morning, Ken would go start up the old John Deere tractor and the generator to help keep his new business  afloat. No matter what Ken, his business partners, or his family faced, they were going to fight. After ??? time the business ran off the generator, the city engineer came in and said "he had to find at least one thing wrong". After finding his one thing, he told Ken to fix the problem. So Ken did. After Ken fixed the problem, the city finally gave the business electricity. Ken filed a lawsuit against the city ???? (get more information). 
