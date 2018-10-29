@@ -27,4 +27,4 @@ A freight company set out to buy the store and it's land, but the partners would
 
 Casey's, Kum & Go, TH Rogers, Woodshed, and several others have been contacted regarding the listing, but none were able to venture out. 
 
-The store is currently being rented for shelving storage b the local pharmacy, Osborn Drugs. 
+The store is currently being rented for shelving storage by the local pharmacy, Osborn Drugs. 
