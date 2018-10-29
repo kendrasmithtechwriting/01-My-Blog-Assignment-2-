@@ -20,7 +20,11 @@ After the auction, Ken put his building and land up for sale. He first listed th
 Ken's health continued to improve gradually, but at the age of 74, his physical health was reaching a peak. Ken loved his business and wore his Ken's Farm and Home hat everywhere he went. Customers would stop by when they would see Ken and his family dining out and ask "so when are you opening the store back up? I really miss it" and comment things like "you never know what you have until its gone. We really need a store like yours around here. You just can't find those products you had close by. You always had everything!". Ken and his family would chuckle and reminsice on all the memories they had in the store. Ken and his family wished too that the store never had to close, but they knew it was in their best interest. Each time Ken and his wife Marilyn heard comments, they would merely nod their head and say "yeah I wish" and politely say "thank you".  
 ## Currently 
 The land and the building was first on the market with Country Real Estate: Post Properties and Harrell Post. After 2 years, Ken switched to NEO Reality with David Davis. David Davis had it for about 1.5 years before Ken switched back to Harrell Post. Harrell had it another 2 years, and Ken switched back to David Davis who has it listed on the market still today. 
+
 The 30,000 square feet metal building as well as the 6.4 acre land, right next to the Turnpike Gate was orignally listed 2.8 million dollars. Ken then dropped the price to 2 million. Then 1.8 million. It is now listed at 1.5 million. 
+
 A freight company set out to buy the store and it's land, but the partners would not follow through. There were 2 other places interested in the land and the building, but unfortunately none were able to follow through. 
+
 Casey's, Kum & Go, TH Rogers, Woodshed, and several others have been contacted regarding the listing, but none were able to venture out. 
-The store is currenty being rented for shelving storage b the local pharmacy, Osborn Drugs. 
+
+The store is currently being rented for shelving storage b the local pharmacy, Osborn Drugs. 
