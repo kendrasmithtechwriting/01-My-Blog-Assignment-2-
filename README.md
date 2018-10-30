@@ -3,7 +3,7 @@ In an effort to provide the community with history dating back to the 1970’s o
 
 Ken's Farm and Home once located in Miami, Oklahoma was owned and operated by Ken and Marilyn Hunsperger for 35 years. It served as a staple for the local farming community. The stored sold a variety of items ranging from clothing, housewares, hardware, Stihl products and other lawn service items, and farming equipment.
 
-As a granddaghter of Ken and Marilyn, I have encountered and acquired this historical information first hand. I hope this information is beneficial to you to show the behind the scenes look at this important community business. I have witnessed first hand the happiness, as well as the sorrow the store brought to the town and citizens of Miami, Oklahoma. Thank you all for the love and support you have showed my family since 1976.  
+As a granddaughter of Ken and Marilyn, I have encountered and acquired this historical information first hand. I hope this information is beneficial to you to show the behind the scenes look at this important community business. I have witnessed first hand the happiness, as well as the sorrow the store brought to the town and citizens of Miami, Oklahoma. Thank you all for the love and support you have showed my family since 1976.  
 ![ken and marilyn](https://user-images.githubusercontent.com/43043767/47691532-794b9380-dbc0-11e8-8b66-3650e806f8e9.jpg)
 
 ## In the beginning 
