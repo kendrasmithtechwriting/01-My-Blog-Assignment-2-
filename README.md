@@ -46,4 +46,5 @@ Now, 21 years old and soon to be graduated with a Bachelors degree in Nutrition 
 I want to personally thank the community for rising to the occasion and supporting my family not only in the 35 years of business, but in the 41 years they have lived here.
 
 ![me](https://user-images.githubusercontent.com/43043767/47692050-7ce01a00-dbc2-11e8-935d-d4f77c8a7873.jpg)
-
+![cait and grandparents](https://user-images.githubusercontent.com/43043767/47692100-a8fb9b00-dbc2-11e8-995c-32c0701bb6c1.jpg)
+![cait and i](https://user-images.githubusercontent.com/43043767/47692101-a8fb9b00-dbc2-11e8-80e5-ee6e47fc5786.png)
