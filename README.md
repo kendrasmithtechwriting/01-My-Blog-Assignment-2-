@@ -47,7 +47,7 @@ The store is currently being rented for shelving storage by the local pharmacy, 
 
 Here are some links to the real estate listings:
 
-[insert limk] (https://www.crye-leike.com/2220-steve-owens/miami/ok/tid-neoklahoma-mlsnum-18.1961)
+https://www.crye-leike.com/2220-steve-owens/miami/ok/tid-neoklahoma-mlsnum-18.1961
 
 http://www.neorealtygroup.com/listing-details/  **Under** ***List 17-2050***
 
