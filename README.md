@@ -45,6 +45,12 @@ Casey's, Kum & Go, TH Rogers, Woodshed, and several others have been contacted r
 
 The store is currently being rented for shelving storage by the local pharmacy, Osborn Drugs. 
 
+Here are some links to the real estate listings:
+[https://www.crye-leike.com/2220-steve-owens/miami/ok/tid-neoklahoma-mlsnum-18.1961] 
+[http://www.neorealtygroup.com/listing-details/] List 17-2050
+https://www.grandviewrealtyinc.com/listing/214875863-150077050/2220-steve-owens-blvd-miami-ok-74354/
+http://www.unitedcountry.com/Commercial-Property/OK/Commercial-Property-in-Miami-Oklahoma/452308
+
 ### About Me
 Hello, my name is Kendra Smith and I am from Miami Oklahoma. I am the daughter of Novaleen (Hunsperger) Smith, and the granddaughter of Ken and Marilyn Hunsperger. I grew up in their farm store, Ken's Farm and Home, until I was 13. Most of you will probably remember me by the little twins that used to run around the store. I loved every moment of growing up in the store, and it taught me so much that I have carried on to my adult life today. I learned that hard work pays off, you should persevere through all trials in life, and to never give up. Being raised in the family business gave me a strong work ethic that has led to many of my successes today.
 
