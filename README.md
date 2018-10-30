@@ -44,3 +44,6 @@ But most of all, I cherish the memories I made it the store and the lessons I le
 Now, 21 years old and soon to be graduated with a Bachelors degree in Nutrition and Dietetics and an Associates degree in Christian Ministry from College of the Ozarks, I have been successful in my time at "Hard Work U" because of the things I learned from my family first hand throughout my years at Ken's Farm and Home.
 
 I want to personally thank the community for rising to the occasion and supporting my family not only in the 35 years of business, but in the 41 years they have lived here.
+
+![me](https://user-images.githubusercontent.com/43043767/47692050-7ce01a00-dbc2-11e8-935d-d4f77c8a7873.jpg)
+
